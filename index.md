@@ -23,9 +23,9 @@ In the following you can view my prior work, qualifications, background, pricing
 ### Qualifications
 
 - Currently a Student studying a **Certificate III in Film & Screen Media,** <sub>*more information found on the course [here](https://tafeqld.edu.au/course/17/17799/certificate-iii-in-screen-and-media).*</sub>
-- Prior **Community Manager/Owner** of the [Deepwoken Info Discord Server ](https://discord.gg/d4SCwUJbBj) **(32k+ Members)** 
+- Prior **Community Manager/Owner** of the [Deepwoken Info Discord Server,](https://discord.gg/d4SCwUJbBj) <sub>**(32k+ Members)**</sub> 
 - Experience working with **Paid Sponsorships,** one of which being **Raid Shadow Legends,** <sub>*reference found in the below section.*</sub>
-- Current Owner of the [Feudal Life Info Discord Server](https://discord.gg/ErntSS4tKj) **(500+ Members, sorta dead though..)**
+- Current Owner of the [Feudal Life Info Discord Server,](https://discord.gg/ErntSS4tKj) <sub>**(500+ Members, sorta dead though..)**</sub>
 - Oscassional **Content Creator** (Ages Since I Uploaded) for my small channel found [here.](https://www.youtube.com/channel/UC-P4akm98mrYi8vIWQREG5Q?app=desktop)
 
 ### Recent Work
