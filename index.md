@@ -29,8 +29,7 @@ In the following you can view my prior work, qualifications, background, pricing
 - Currently a Student studying a **Certificate III in Film & Screen Media,** <sub>*more information found on the course [here](https://tafeqld.edu.au/course/17/17799/certificate-iii-in-screen-and-media).*</sub>
 - Prior **Community Manager/Owner** of the [Deepwoken Info Discord Server,](https://discord.gg/d4SCwUJbBj) <sub>**(32k+ Members),** left to focus on studies & video editing.</sub> 
 - Experience working with **Paid Sponsorships,** one of which being **Raid Shadow Legends,** <sub>*reference found in the below section.*</sub>
-- Oscassional **Content Creator** (Ages Since I Uploaded) for my very small channel found [here.](https://www.youtube.com/channel/UC-P4akm98mrYi8vIWQREG5Q?app=desktop)
-
+- Oscassional **Content Creator** (Ages Since I Uploaded) for my very small channel, <sub>*reference found in the below section.*</sub>
 ---
 
 ### Recent Work
@@ -40,6 +39,10 @@ My most recent work as a Freelance videography & editor has been for the Deepwok
 Creating a Raid Shadow Legends Sponsorship section, while this video is still yet to come out I've posted the Sponsorship section as an unlisted video for you, to look through as a demo-reel of sorts!
 
 #### **[Raid Shadow Legends Sponsorship Link](https://youtu.be/0o9CoU3T35g)**
+
+While not recent, I've also created 3 short videos on games listed on my YouTube channel, in my opinion each one shows my progression as an editor bit by bit the link is just here.
+
+#### **[YouTube Channel Link](https://www.youtube.com/channel/UC-P4akm98mrYi8vIWQREG5Q)
 
 ---
 
