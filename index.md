@@ -1,6 +1,6 @@
 ## AreaForce's Portfolio
 
-Hello viewer! Thank you for taking the time to ready through this portfolio.
+Hello possible client! Thank you for taking the time to ready through this portfolio.
 
 My name is AreaForce, I've been working within the video editing/videography field for over a year now & am currently taking a Certificate III in Screen Media.
 
@@ -38,7 +38,7 @@ In the following you can view my prior work, qualifications, background, pricing
 
 My most recent work as a Freelance videography & editor has been for the Deepwoken Content Creator [Agamatsu.]()
 
-Creating a Raid Shadow Legends Sponsorship section, while this video is still yet to come out I've posted the Sponsorship section as an unlisted video for you, the viewer of this Portfolio, to look through as a demo-reel of sorts!
+Creating a Raid Shadow Legends Sponsorship section, while this video is still yet to come out I've posted the Sponsorship section as an unlisted video for you, to look through as a demo-reel of sorts!
 
 **[Raid Shadow Legends Sponsorship Link](https://youtu.be/0o9CoU3T35g)**
 
@@ -52,3 +52,14 @@ Prices are yet to be determined however..
 
 #### As I'm new to Freelance work & looking to get started, the first 2 comissions will be completely free of charge as long as the edit is under the 3-4 minute mark.
   
+---
+
+### Contact Information
+
+Feel free to contact me either through Discord or Email, I'll be happy to respond whenever I view you message!
+- **Discord:** *AreaForce#5377*
+- **Work Email:** *AreaForce@gmx.com*
+
+---
+
+###Thanks For Reading!
