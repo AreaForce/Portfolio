@@ -39,7 +39,7 @@ My most recent work as a Freelance videography & editor has been for the Deepwok
 
 Creating a Raid Shadow Legends Sponsorship section, while this video is still yet to come out I've posted the Sponsorship section as an unlisted video for you, to look through as a demo-reel of sorts!
 
-**[Raid Shadow Legends Sponsorship Link](https://youtu.be/0o9CoU3T35g)**
+#### **[Raid Shadow Legends Sponsorship Link](https://youtu.be/0o9CoU3T35g)**
 
 ---
 
