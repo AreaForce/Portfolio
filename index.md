@@ -1,46 +1,45 @@
-## Libroru's Portfolio
+## AreaForce's Portfolio
 
-Hey there! Thanks for checking out my portfolio! I've been editing for years now! Below you will find some examples of edits I did!
+Hello viewer! Thank you for taking the time to ready through this portfolio.
 
-I have my own YouTube channel which I edit for and I am also an editor for Sebchoof.
+My name is AreaForce, I've been working within the video editing/videography field for over a year now & am currently taking a Certificate III in Screen Media.
 
-### What you can hire me for
+In the following you can view my prior work, qualifications, background, pricing, as well as contact details should you choose to get into contact with me.
 
-- Editing a YouTube video
-- Turning clips into a TikTok/Reels/Shorts friendly video
-- Subtitling a video
-- Custom Requests -> DM me on Discord (Libroru#1185)
-- (Thumbnails. I am not very experienced with it, but I will leave some examples down below.)
+### Skills (Davinci Resolve 18 Pro)
 
-### What my recent edits look like
+- Keyframing
+- Masking
+- Tracking
+- Transitions
+- Colour Grading
+- Audio Control
+- Basic Clip & Audio Stitching
+- Nodes
+- Special Effects
+- Thumbnail Creation
+- And Much More!
 
-I have my own channel which I edit for [here](https://www.youtube.com/channel/UCpNA4-mfV_bhbcjHBPluRpQ)  
-I also edit for [Sebchoof](https://www.youtube.com/user/sebchooo)  
+### Qualifications
 
-[Commentary Video](https://youtube.com/watch?v=rvv8M5joO_sg)  
+- Currently a Student studying a **Certificate III in Film & Screen Media,** *more information found on the course [here](https://tafeqld.edu.au/course/17/17799/certificate-iii-in-screen-and-media).*
+- Prior **Community Manager/Owner** of the [Deepwoken Info Discord Server ](https://discord.gg/d4SCwUJbBj) **(32k+ Members)** 
+- Experience working with **Paid Sponsorships,** one of which being **Raid Shadow Legends,** *reference found in the below section.*
+- Current Owner of the [Feudal Life Info Discord Server](https://discord.gg/ErntSS4tKj) **(500+ Members, sorta dead though..)**
+- Oscassional **Content Creator** (Ages Since I Uploaded) for my small channel found [here.](https://www.youtube.com/channel/UC-P4akm98mrYi8vIWQREG5Q?app=desktop)
 
-[Here is some thumbnail work](https://media.discordapp.net/attachments/264055287479140352/877169203260588082/thumb.png?width=984&height=554) 
+### Recent Work
 
-### Past Commisions
-
-For [Soreyx](https://www.youtube.com/channel/UCPAHPIf3qG5DfwH99YahM1A) - [Video](https://1drv.ms/v/s!Art90aviZL0fzXXPeznw1ib-_eQZ?e=17p80i)
+My most recent work as a Freelance videography & editor is Agamatsu's Raid Shadow Legends Sponsorship, while this video is still yet to come out I've posted the Sponsorship section as an unlisted item for you, the viewer of this Portfolio, to look through.
+#### [Raid Shadow Legends Sponsorship](https://youtu.be/0o9CoU3T35g)
 
 ---
 
 ### Pricing
-  
-***I only accept money over PayPal***
----
-**I finish the edit, you pay for it, I remove the watermarks.**  
-  
-Here are the prices:
-  
-|Tier|Price| YouTube Video |
-|----|-----| ----------- |
-|I|US$15| Basic editing with no special effects |
-|II|US$20| Basic editing with zooms and optional transitions|
-|III|US$25| Basic editing with zooms, optional transitions and subtitles|
-|IV|US$40| <5h footage editing including all the above tiers|
-  
-Anything else will be discussed in DMs
+
+Prices are yet to be determined however..
+
+### Limited Time Deal
+
+As I'm new to Freelance work & looking to get started, __**the first 2 comissions**__ will be completely __**free of charge**__ as long as the edit is under the 3-4 minute mark.
   
