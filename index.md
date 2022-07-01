@@ -42,5 +42,5 @@ Prices are yet to be determined however..
 
 ### Limited Time Deal
 
-As I'm new to Freelance work & looking to get started, __**the first 2 comissions**__ will be completely __**free of charge**__ as long as the edit is under the 3-4 minute mark.
+As I'm new to Freelance work & looking to get started, **the first 2 comissions** will be completely **free of charge** as long as the edit is under the 3-4 minute mark.
   
