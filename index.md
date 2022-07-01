@@ -31,7 +31,8 @@ In the following you can view my prior work, qualifications, background, pricing
 ### Recent Work
 
 My most recent work as a Freelance videography & editor is Agamatsu's Raid Shadow Legends Sponsorship, while this video is still yet to come out I've posted the Sponsorship section as an unlisted item for you, the viewer of this Portfolio, to look through.
-***[Raid Shadow Legends Sponsorship Link](https://youtu.be/0o9CoU3T35g)***
+
+**[Raid Shadow Legends Sponsorship Link](https://youtu.be/0o9CoU3T35g)**
 
 ---
 
