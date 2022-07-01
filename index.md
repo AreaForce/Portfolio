@@ -42,7 +42,7 @@ Creating a Raid Shadow Legends Sponsorship section, while this video is still ye
 
 While not recent, I've also created 3 short videos on games listed on my YouTube channel, in my opinion each one shows my progression as an editor bit by bit the link is just here.
 
-#### **[YouTube Channel Link](https://www.youtube.com/channel/UC-P4akm98mrYi8vIWQREG5Q)
+#### **[YouTube Channel Link](https://www.youtube.com/channel/UC-P4akm98mrYi8vIWQREG5Q)**
 
 ---
 
