@@ -56,7 +56,7 @@ Prices are yet to be determined however..
 ### Contact Information
 
 Feel free to contact me either through Discord or Email, I'll be happy to respond whenever I view you message!
-- **Discord:** *AreaForce#5377*
+- **Discord (Prefered Contact Type):** *AreaForce#5377*
 - **Work Email:** *AreaForce@gmx.com*
 
 ---
