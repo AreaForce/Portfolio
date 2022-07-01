@@ -6,6 +6,8 @@ My name is AreaForce, I've been working within the video editing/videography fie
 
 In the following you can view my prior work, qualifications, background, pricing, as well as contact details should you choose to get into contact with me.
 
+---
+
 ### Skills (Davinci Resolve 18 Pro)
 
 - Keyframing
@@ -20,6 +22,8 @@ In the following you can view my prior work, qualifications, background, pricing
 - Thumbnail Creation
 - And Much More!
 
+---
+
 ### Qualifications
 
 - Currently a Student studying a **Certificate III in Film & Screen Media,** <sub>*more information found on the course [here](https://tafeqld.edu.au/course/17/17799/certificate-iii-in-screen-and-media).*</sub>
@@ -28,9 +32,13 @@ In the following you can view my prior work, qualifications, background, pricing
 - Current Owner of the [Feudal Life Info Discord Server,](https://discord.gg/ErntSS4tKj) <sub>**(500+ Members, sorta dead though..)**</sub>
 - Oscassional **Content Creator** (Ages Since I Uploaded) for my small channel found [here.](https://www.youtube.com/channel/UC-P4akm98mrYi8vIWQREG5Q?app=desktop)
 
+---
+
 ### Recent Work
 
-My most recent work as a Freelance videography & editor is Agamatsu's Raid Shadow Legends Sponsorship, while this video is still yet to come out I've posted the Sponsorship section as an unlisted item for you, the viewer of this Portfolio, to look through.
+My most recent work as a Freelance videography & editor has been for the Deepwoken Content Creator [Agamatsu.]()
+
+Creating a Raid Shadow Legends Sponsorship section, while this video is still yet to come out I've posted the Sponsorship section as an unlisted video for you, the viewer of this Portfolio, to look through as a demo-reel of sorts!
 
 **[Raid Shadow Legends Sponsorship Link](https://youtu.be/0o9CoU3T35g)**
 
@@ -42,5 +50,5 @@ Prices are yet to be determined however..
 
 ### Limited Time Deal
 
-As I'm new to Freelance work & looking to get started, **the first 2 comissions** will be completely **free of charge** as long as the edit is under the 3-4 minute mark.
+#### As I'm new to Freelance work & looking to get started, the first 2 comissions will be completely free of charge as long as the edit is under the 3-4 minute mark.
   
