@@ -1,4 +1,4 @@
-## DarazEdits
+## Daraz Edits
 
 Hello possible client! Thank you for taking the time to ready through this portfolio.
 
