@@ -2,7 +2,7 @@
 
 Hello possible client! Thank you for taking the time to ready through this portfolio.
 
-My name is Daraz, I've been working within the video editing/videography field for over a year now & am currently taking a Certificate III in Videography & Screen Media.
+Hi I'm Luke, I've been working within the video editing/videography field for over a year now & am currently taking a Certificate III in Videography & Screen Media.
 
 In the following you can view my prior work, qualifications, background, pricing, as well as contact details should you choose to get into contact with me & a few extra notes.
 
